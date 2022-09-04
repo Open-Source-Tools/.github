@@ -1,4 +1,4 @@
-## Open Source Tools 👋
+## Open Society 👋
 
 <!--
 
