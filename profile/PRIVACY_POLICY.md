@@ -23,6 +23,6 @@ Changes to this Policy
 We may update this Privacy Policy from time to time to reflect changes in our practices or applicable laws. We will notify you of any material changes to this Policy by posting the new policy on our website or by email.
 
 Contact Us
-If you have any questions or concerns about our Privacy Policy or our use of your personal information, please contact us at [insert contact information].
+If you have any questions or concerns about our Privacy Policy or our use of your personal information, please contact us at fs0c19ty@protonmail.com.
 
 Effective Date: 8 March 2023
