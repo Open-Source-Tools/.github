@@ -15,7 +15,7 @@
 ## Support and Donate
 
 1. Support us by following Open Society. 
-2. Buy me a coffee.
+2. Buy us a coffee.
 
     | Librepay | Ko-Fi |
     |----------|-------|
