@@ -14,7 +14,7 @@
 
 ## Support and Donate
 
-1. Support this project by becoming stargazer of this project.
+1. Support us by following Open Society. 
 2. Buy me a coffee.
 
     | Librepay | Ko-Fi |
